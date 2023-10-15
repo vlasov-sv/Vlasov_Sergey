@@ -16,6 +16,7 @@
 https://t.me/vlasov_sv
 
 ### Обучение
+![Karpov_certificate_page-0001](https://github.com/vlasov-sv/vlasov-sv/assets/85408219/1ee46809-ca5c-4429-ac23-ac19ae855496)
 
 ![2023-08-03_11-18-43](https://github.com/vlasov-sv/Vlasov_Sergey/assets/85408219/09f39386-af9c-4d07-b640-ffb317073869)
 
